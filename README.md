@@ -1,0 +1,2 @@
+# kentsel
+türkiyenin dönüşümsel kentseli
